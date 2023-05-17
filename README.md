@@ -1,1 +1,1 @@
-![Картинка](https://digitalvarys.com/wp-content/uploads/2019/06/GIT-Branchand-its-Operations.png)
+![Картинка](https://i.ytimg.com/vi/Bg8tiOLZw4A/maxresdefault.jpg)
